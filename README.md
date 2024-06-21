@@ -10,6 +10,6 @@ Meu nome é Luiz Felipe
 ### Você pode entrar em contato comigo pelo 📧
 
 - luiz.adriano.miranda@escola.pr.gov.br
-- @lz.miranda9
+- @_lluiz_felipe08
 
 ![](https://media.tenor.com/0BpXtJecJScAAAAC/ronaldo.gif)
